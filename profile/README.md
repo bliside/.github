@@ -1,1 +1,2 @@
-# Hi there
+# Premium Shopify Themes
+https://bliside.com
